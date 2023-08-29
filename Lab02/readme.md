@@ -18,4 +18,8 @@ Assignment 3
 ## Question 6:
 ![Scratch 3 18 1 8_29_2023 2_51_39 PM](https://github.com/SaifShahAi/pffall23/assets/142867921/0802f319-f530-4fb5-a7e8-cde6b0a6529e)
 
+## Question 7:
+![Scratch 3 18 1 8_29_2023 2_59_17 PM](https://github.com/SaifShahAi/pffall23/assets/142867921/6be7dd34-e345-4c06-91fd-8e49230efc77)
+
+
 
