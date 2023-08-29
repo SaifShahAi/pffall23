@@ -16,7 +16,7 @@ Assignment 3
 ![Scratch 3 18 1 8_29_2023 2_41_39 PM](https://github.com/SaifShahAi/pffall23/assets/142867921/8a3d6e9f-52da-4593-9702-9061ce88d7e9)
 
 ## Question 6:
-![Scratch 3 18 1 8_29_2023 2_51_39 PM](https://github.com/SaifShahAi/pffall23/assets/142867921/0802f319-f530-4fb5-a7e8-cde6b0a6529e)
+![Scratch 3 18 1 8_29_2023 10_18_04 PM](https://github.com/SaifShahAi/pffall23/assets/142867921/7fd1c573-78a5-4560-998b-4697a1e865f6)
 
 ## Question 7:
 ![Scratch 3 18 1 8_29_2023 2_59_17 PM](https://github.com/SaifShahAi/pffall23/assets/142867921/6be7dd34-e345-4c06-91fd-8e49230efc77)
