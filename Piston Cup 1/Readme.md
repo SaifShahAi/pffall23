@@ -9,7 +9,7 @@
 ![3](https://github.com/SaifShahAi/pffall23/assets/142867921/ded1cd6a-9761-4367-bb42-87401f4547b0)
 
 ## Question 4:
-![q4](https://github.com/SaifShahAi/pffall23/assets/142867921/f6f2db26-80ff-4e6d-967a-aea6a0710578)
+![4](https://github.com/SaifShahAi/pffall23/assets/142867921/b97a9738-0412-4067-8657-601c77e9cb2c)
 
 ## Question 5:
 ![5](https://github.com/SaifShahAi/pffall23/assets/142867921/29881860-afc6-492c-8f6f-0d0ac689f336)
