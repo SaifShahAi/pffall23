@@ -12,6 +12,4 @@
 ![4](https://github.com/SaifShahAi/pffall23/assets/142867921/b97a9738-0412-4067-8657-601c77e9cb2c)
 
 ## Question 5:
-![5](https://github.com/SaifShahAi/pffall23/assets/142867921/29881860-afc6-492c-8f6f-0d0ac689f336)
-
-
+![IMG_20230831_134539_628](https://github.com/SaifShahAi/pffall23/assets/142867921/d228f915-840d-4815-8d40-0e93ea5ff509)
