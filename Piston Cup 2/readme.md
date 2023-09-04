@@ -10,7 +10,7 @@
 For more approx value of days, you can round off.
 
 ## Question 8:
-![1](https://github.com/SaifShahAi/pffall23/assets/142867921/0915edb1-8799-4fef-b1bb-d821303f6cec)
+![1](https://github.com/SaifShahAi/pffall23/assets/142867921/475f3815-54cb-4baf-9220-16e9d51be285)
 
 ## Question 9:
 ![1](https://github.com/SaifShahAi/pffall23/assets/142867921/ef96db54-d16c-427b-8bce-3027c823b60e)
