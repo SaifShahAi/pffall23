@@ -3,6 +3,9 @@
 ## Question 6:
 ![1](https://github.com/SaifShahAi/pffall23/assets/142867921/861e8db9-63f8-4bb0-a161-51ff54492e67)
 
+## Question 8:
+![1](https://github.com/SaifShahAi/pffall23/assets/142867921/0915edb1-8799-4fef-b1bb-d821303f6cec)
+
 ## Question 9:
 ![1](https://github.com/SaifShahAi/pffall23/assets/142867921/ef96db54-d16c-427b-8bce-3027c823b60e)
 
