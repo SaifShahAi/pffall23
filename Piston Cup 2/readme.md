@@ -4,8 +4,8 @@
 ![1](https://github.com/SaifShahAi/pffall23/assets/142867921/861e8db9-63f8-4bb0-a161-51ff54492e67)
 
 ## Question 7: 
-![1](https://github.com/SaifShahAi/pffall23/assets/142867921/5159c6f9-3c62-4f34-97e8-891fa232b200)
-![2](https://github.com/SaifShahAi/pffall23/assets/142867921/30b52b38-38fc-40f9-8fca-2d56c4573c8f)
+![1](https://github.com/SaifShahAi/pffall23/assets/142867921/b843125e-c415-44e8-8069-7460efdc812b)
+![2](https://github.com/SaifShahAi/pffall23/assets/142867921/91170083-e700-44f1-af81-1f1ed9b3d576)
 
 For more approx value of days, you can round off.
 
